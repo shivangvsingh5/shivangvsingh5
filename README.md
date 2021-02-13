@@ -1,0 +1,4 @@
+- 👋 Hello, I’m @shivangvsingh5
+- 👀 I’m interested in making this world a better place to live in
+- 🌱 I’m currently learning automation processes to make my work easy, fast and 
+- 📫 You can reach me by sending me a small email at my address
